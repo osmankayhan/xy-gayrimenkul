@@ -1,0 +1,2 @@
+# xy-gayrimenkul
+xy  gayrimenkul
